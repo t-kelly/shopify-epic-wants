@@ -1,0 +1,1 @@
+Head to the [Discussions Tab](https://github.com/t-kelly/shopify-epic-wants/discussions) and upvote + comment on epic wants that would also enhance your Shopify Partner experience!
